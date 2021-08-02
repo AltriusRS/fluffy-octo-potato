@@ -1,1 +1,1 @@
-Remember folks, This stream only Dark is downing a single shot for every follow and subscription received. Lets get tipsy!
+Thanks to all the people who are subscribed to Dark. She really appreciates every single one of you!
